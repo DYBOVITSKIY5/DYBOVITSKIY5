@@ -1,4 +1,4 @@
-- 👋 Hi, I’m  @vor4yn
+- 👋 Hi, I’m  vor4yn
 - 👀 Me interesting:  Webhook and App in Dicord
 - 📫 How to reach me: **discord vor4yn#3033**
 
